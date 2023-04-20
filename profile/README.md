@@ -1,1 +1,1 @@
-# Joystick Jokers
+# Joystick Jokers / Gamer Group
